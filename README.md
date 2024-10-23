@@ -1,2 +1,2 @@
 # T-ng-anh-Quy-n
-10 củ
+Xin 10 củ khoai
